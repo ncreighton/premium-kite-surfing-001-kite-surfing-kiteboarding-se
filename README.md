@@ -1,0 +1,2 @@
+# premium-kite-surfing-001-kite-surfing-kiteboarding-se
+Tired of guessing which kite size worked best in 20 knots or forgetting that epic spot's exact coordinates? Stop relying on memory and start tracking every session with a system built for kiteboarders.  This Notion template bundle solves the chaos of scattered notes, gear logs, and wind data by giving you a single, searchable hub for all your sessi
